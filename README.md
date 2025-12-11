@@ -1,0 +1,1 @@
+# Bachelor-Thesis---How-smart-is-AI-
